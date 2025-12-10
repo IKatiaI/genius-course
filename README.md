@@ -1,2 +1,2 @@
 # genius-course
-im studiiiiiiieng
+im studiiiiiiie
